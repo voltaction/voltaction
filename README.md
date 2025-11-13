@@ -1,3 +1,3 @@
-![a](https://media.discordapp.net/attachments/1276969417539846216/1437783769728942120/image.png?ex=69147ffb&is=69132e7b&hm=4c3a59ff230cf48a338badfcdf0d3c63c7dda9c414fcc0c336ba868f27fc3013&=&format=webp&quality=lossless&width=963&height=960)
+![a](blob:https://www.messenger.com/7849890b-2b71-40f4-a0f2-37872eee9ac5)
 
 kinlist (i dont really take this seriously) - i kin fura kanato as in a CHARACTER played by vtuber, not as real person. 
