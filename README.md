@@ -1,6 +1,2 @@
-![a](https://files.catbox.moe/1qfzay.webp)
+![a](https://i.redd.it/57qd65ozy7gf1.gif)
 
-kinlist (i dont really take this seriously) - i kin fura kanato as in a CHARACTER played by vtuber, not as real person. 
-
-
-very very hyperfixated on nijisanji jp's 2nd VTA-formed wave VOLTACTION
